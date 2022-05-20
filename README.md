@@ -1,1 +1,1 @@
-# Yo-lo-dise-o
+# Yo-lo-diseno
